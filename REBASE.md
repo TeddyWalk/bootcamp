@@ -1,3 +1,4 @@
+
 Eddie: The protagonist and main character around whom the story centers; at the start of the story, he is killed on his 83rd birthday.
 
 Marguerite: Eddie's wife whom he met at Ruby Pier and married after returning from World War II.
@@ -15,3 +16,5 @@ Mickey Shea: A family friend who worked with Eddie's father fixing rides at Ruby
 Tala: Tala is a young Filipina girl Eddie sees in a burning hut.
 
 Nicky: Nicky is a young man who visited Ruby Pier, and caused the effects that led to Eddie's death. He claims to be Ruby's great-grandson.
+
+Hi, Teddy is here !
